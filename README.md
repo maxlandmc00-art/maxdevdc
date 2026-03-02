@@ -1,4 +1,4 @@
-<a href="https://discord.gg/vsc"><img src="https://i.imgur.com/z1oWSiy.png" width="100%" height="auto"/></a>
+<a href="https://discord.gg/vsc"><img src="https://r.resimlink.com/WBOo9ujDT3.png" width="100%" height="auto"/></a>
 
 <p align="center">
   <a href="https://git.io/typing-svg">
